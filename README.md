@@ -9,4 +9,4 @@
 | Não é loja, mas é inspiração | [novos para nós](https://novosparanos.com.br/)|
 | Artista argentina, pintora, quadros e peças maravilhosas | [Consuelo Vidal](http://consuelovidal.com/) |
 | Vasos diferentões para plantinhas | [bruno moreno](http://www.brunomorenostudio.com/)|
-| Marcenaria | [bruno moreno](http://www.brunomorenostudio.com/)|
+| Marcenaria | [paulo alves](https://pauloalves.com.br/)|
